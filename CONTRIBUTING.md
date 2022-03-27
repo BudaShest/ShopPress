@@ -6,4 +6,4 @@ ShopPress - это open-source проект, в процессе разрабо�
 
 [Александр Зыков(krushl)](https://t.me/a_a3BYKOB)
 
-[Александр Титов](https://vk.com/kotanjam)
+[Александр Титов(BudaShest)](https://vk.com/kotanjam)
